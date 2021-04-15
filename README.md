@@ -1,4 +1,4 @@
-![Header](https://github.com/Noyan-K/Noyan-K/blob/main/assets/awake%20✓.gif)
+![Header](https://github.com/Noyan-K/Noyan-K/blob/main/assets/E8mi.gif)
 
 About me
 
